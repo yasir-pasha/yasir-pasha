@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=yasir-pasha&label=PROFILE+VIEWS)
 ### Hi I am Muhammad Yasir 👋
 
 <!--
